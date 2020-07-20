@@ -1,0 +1,1 @@
+# as.bomai.naub.com
